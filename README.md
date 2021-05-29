@@ -22,6 +22,8 @@
 
 -------
 
-### 🌲 **• My Creations**
+### 🌲 **• Contact me**
 
-**•** My server soon…
+**•** Discord : ashix#7586 (My friend requests are closed)
+
+**•** ashix.contact@gmail.com
