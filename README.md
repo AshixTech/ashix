@@ -2,7 +2,7 @@
 
 -------
 
-### 🌷 **• About Me**
+### 🐾 **• About Me**
 
 **•** I like drawing and playing video games.
  
@@ -24,6 +24,6 @@
 
 ### 🌲 **• Contact me**
 
-**•** Discord : ashix#7586 (My friend requests are closed)
+**•** Discord : ashix#7586 
 
 **•** ashix.contact@gmail.com
